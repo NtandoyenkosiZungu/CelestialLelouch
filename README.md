@@ -4,7 +4,7 @@
 - 📫 You can reach me through:
 -     discord @ntandoyenkosi8831 
 -     Telegram @Celestial *Poltergeist_24
--     e-mail chaoscontrolnkulleko@outlook.com
+-     e-mail ntandoyenkosizungu7@gmail.com
 
 <!---
 CelestialLelouch/CelestialLelouch is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
