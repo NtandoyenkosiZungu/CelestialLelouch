@@ -1,8 +1,7 @@
-- 👋 Hi, I’m @CelestialLelouch. 
+- 👋 Hi, I’m @NtandoyenkosiZungu. 
 - 👀 I’m interested in Computer Science and web development.
 - 🌱 I’m currently doing my first year for Computer Science and IT at University Of KwaZulu-Natal
 - 📫 You can reach me through:
--     discord @ntandoyenkosi8831 
 -     Telegram @Celestial *Poltergeist_24
 -     e-mail ntandoyenkosizungu7@gmail.com
 
